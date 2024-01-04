@@ -11,7 +11,7 @@
   <a href="">
     <img alt=Support height="300" src="https://i.imgur.com/INtcP8I.jpg"> 
     </p>
-    <h1 align="center">Hasi-1.O<br></h1>
+    <h1 align="center">𝄟✮͢🦋⃟≛⃝Dûßtø(Töñmöy)❥𝄟✮⃝♥️-1.O<br></h1>
    </a>
 </p>
   
